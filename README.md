@@ -1,1 +1,0 @@
-# Biopal-report-1-Group-7
